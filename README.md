@@ -1,1 +1,1 @@
-# sharing data with comuunity
+# sharing data with community
